@@ -1,1 +1,1 @@
-This is a website to make it easier for me to track all of the fake bets from my friends
+Hey! I'm Galen, and I'm a professional actor who is currently a student at the Flatiron School bootcamp in New York City.
